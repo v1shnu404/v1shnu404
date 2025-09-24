@@ -1,5 +1,5 @@
 # 💫 About Me:
-A BCA student, learning MERN, Python and C++
+im unemployed as hell brah
 
 
 ## 🌐 Socials:
