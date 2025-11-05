@@ -1,5 +1,5 @@
 # 💫 About Me:
-im unemployed as hell brah
+A BCA 3rd year student, I like building cool stuff, occassionally.
 
 
 ## 🌐 Socials:
